@@ -1,4 +1,4 @@
-## Abuot me
+## About me
 
 I'm  a Mathematics graduate based in the UK, currently studying Statistics MSc at Imperial College London.
 
